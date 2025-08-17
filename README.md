@@ -52,7 +52,7 @@ It highlights how **academics, projects, internships, and soft skills** impact t
 ---
 
 ## 🔗 Connect with Me
-Let’s connect on [LinkedIn](https://www.linkedin.com/in/your-linkedin-profile) 🚀  
+Let’s connect on [LinkedIn](https://www.linkedin.com/in/manishsingh22/) 🚀  
 
 ---
 
